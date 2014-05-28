@@ -10,7 +10,8 @@ Veterinarian (non super emergency) :
  * 639 4th Ave, Brooklyn, NY 11232
  * Dr. Yvonne Szacki
 
- Hospital (super emergency) :
+
+Hospital (super emergency) :
   * http://newyork.bluepearlvet.com/
   * 718.596.0099
   * 32 4th Avenue, Brooklyn NY 11217
