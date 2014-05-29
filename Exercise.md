@@ -7,10 +7,10 @@
 # evening
  * 6:30pm 30 minute walk. 1 poop may occur.
 
-All walks will involve many pees. Times can vary, though morning walk may be more urgent. Urgency highly dependent on waking time of human (Percy will sleep in).
-
 # night
  * 9:30pm quick walk. Mostly for urinating; 1 poop may occur.
+
+All walks will involve many pees. Times can vary, though morning walk may be more urgent. Urgency highly dependent on waking time of human (Percy will sleep in).
 
 # dog jail
 
