@@ -9,6 +9,9 @@
 
 All walks will involve many pees. Times can vary, though morning walk may be more urgent. Urgency highly dependent on waking time of human (Percy will sleep in).
 
+# night
+ * 9:30 quick walk. Mostly for urinating; 1 poop may occur.
+
 # dog jail
 
 Percy is welcome at Cheeky Dog in DUMBO and Green Pets Spa:
